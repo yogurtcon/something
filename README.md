@@ -112,3 +112,7 @@ What a stupid gambler 🙃
 ## 2020/3/8
 
 原来今天是节日，现在对时间流逝都没概念了。昨晚又是晚睡今天又是晚起，身体很差，虽然我也知道早睡早起有好处但还是一直这样，这是在赌吗。今天收到了一条短信通知我明天深圳面试，但是看这家公司的名字感觉我好像没投过他的简历，再者又看了我昨天没看的csdn的私信，有人找我帮忙做程序，再加上今晚看映像研，看到别人为了梦想努力拼搏，自己也有了斗志，虽然现在前路还很迷茫，但是不能摊着，要跑起来吧，前天看了党妹视频说她开始了早睡计划，受到鼓舞，今天开启早睡计划第一天。
+
+# 2020/3/12
+
+Yesterday I went to the house rented by Aunt Qing in the countryside, where we can slightly experience the feeling of rural life but not very tired, because there were already some facilities there to make it easy to get started.In addition, many people talk to me about my graduation thesis, but I didn't care about it at all during this time. Oh god, it's too difficult to keep doing one thing, can u believe it, I also want to write an English composition every day.
