@@ -116,3 +116,7 @@ What a stupid gambler 🙃
 # 2020/3/12
 
 Yesterday I went to the house rented by Aunt Qing in the countryside, where we can slightly experience the feeling of rural life but not very tired, because there were already some facilities there to make it easy to get started.In addition, many people talk to me about my graduation thesis, but I didn't care about it at all during this time. Oh god, it's too difficult to keep doing one thing, can u believe it, I also want to write an English composition every day.
+
+# 2020/3/14
+
+Well, what did I do yesterday? I didn't come here to write an English diary. I made a video of the day before yesterday and finally uploaded it to bilibili at over 11:00 p.m. I thought I could see a lot of likes, comments and fans the next day, but it was still under review yesterday. Fine, it finally passed the review last night. But this morning, I saw only one comment saying that cheating is not recommended. OK, cool, and one more thing, mobile games of lor can be played yesterday, so after downloading it, I went to my hometown.
