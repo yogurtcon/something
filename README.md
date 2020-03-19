@@ -120,3 +120,7 @@ Yesterday I went to the house rented by Aunt Qing in the countryside, where we c
 # 2020/3/14
 
 Well, what did I do yesterday? I didn't come here to write an English diary. I made a video of the day before yesterday and finally uploaded it to bilibili at over 11:00 p.m. I thought I could see a lot of likes, comments and fans the next day, but it was still under review yesterday. Fine, it finally passed the review last night. But this morning, I saw only one comment saying that cheating is not recommended. OK, cool, and one more thing, mobile games of lor can be played yesterday, so after downloading it, I went to my hometown.
+
+# 2020/3/19
+
+A couple days later, I come back again. My graduation design is being optimized, which is a good thing. Then I saw the mod of 'bengbengbeng' on the Internet these two days and downloaded it for fun. As expected, beautiful girls are the first productivity. Yesterday, I downloaded the 'Ori and the will of the wisps', the second version of Ori, although I was not used to the operation, the scene was really beautiful. Alright, now to say something bad, I coughed for a month and drank a lot of traditional Chinese medicine, but I still stayed up late, still haven't changed it. I started to say that I want to change it a few days ago, but these days, because of all kinds of things, I didn't write an English diary in the morning or go to bed early in the evening, damn it, shaun.
