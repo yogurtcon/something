@@ -124,3 +124,7 @@ Well, what did I do yesterday? I didn't come here to write an English diary. I m
 # 2020/3/19
 
 A couple days later, I come back again. My graduation design is being optimized, which is a good thing. Then I saw the mod of 'bengbengbeng' on the Internet these two days and downloaded it for fun. As expected, beautiful girls are the first productivity. Yesterday, I downloaded the 'Ori and the will of the wisps', the second version of Ori, although I was not used to the operation, the scene was really beautiful. Alright, now to say something bad, I coughed for a month and drank a lot of traditional Chinese medicine, but I still stayed up late, still haven't changed it. I started to say that I want to change it a few days ago, but these days, because of all kinds of things, I didn't write an English diary in the morning or go to bed early in the evening, damn it, shaun.
+
+# 2020/3/20
+
+Last night I still stayed up late. In fact, when I turned off the light and went to bed, I could fall asleep, but I still took my phone, watch it, and didn't want to stop. I have been playing my computer and phone all day, so why do I still want to play when I lie in bed at night? To sleep or not to sleep, that's a question. Fuck it
