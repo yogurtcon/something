@@ -132,3 +132,7 @@ Last night I still stayed up late. In fact, when I turned off the light and went
 ## 2020/3/21
 
 so u know, last night, didn't sleep until 1:00 in the morning, again, and again. After drinking traditional Chinese medicine, I feel my body is not so bad, so I relax my vigilance, hum. The handwritten Chinese character recognition system has finally completed the function of recognizing multiple Chinese characters, and now only the optimization of the algorithm is left.
+
+# 2020/3/24
+
+yesterday is 3/21, today is 3/24, it's correct, don't ask me why. Ok, next thing is, I originally wanted to download Boderlands 3, as a result, my membership of Baidu online disk expired, and the download speed of Thunder was also super slow, in the end I filled the membership of Baidu and downloaded the game, fine. Once I find a new game, I will play it instead of writing a paper. When I am tired of playing, I will uninstall the game, be at a loss and don't know what I am going to do this day. In short, I will not write a paper. In this way, I go deep into a cycle, constantly look for new games, and constantly uninstall games, fk
