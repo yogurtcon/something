@@ -136,3 +136,7 @@ so u know, last night, didn't sleep until 1:00 in the morning, again, and again.
 # 2020/3/24
 
 yesterday is 3/21, today is 3/24, it's correct, don't ask me why. Ok, next thing is, I originally wanted to download Boderlands 3, as a result, my membership of Baidu online disk expired, and the download speed of Thunder was also super slow, in the end I filled the membership of Baidu and downloaded the game, fine. Once I find a new game, I will play it instead of writing a paper. When I am tired of playing, I will uninstall the game, be at a loss and don't know what I am going to do this day. In short, I will not write a paper. In this way, I go deep into a cycle, constantly look for new games, and constantly uninstall games, fk
+
+#2020/3/25
+
+Yesterday, opened the box in Lor, I got two yellow cards, cool.At night, I had grilled fish and barbecue with my friends and played a game called turtle soup. I didn't feel anything in the process of playing, but when I got home, things just get worse, my parents were asleep, so the house was very quiet, when I took a bath alone, I would think nonsense, I would scare myself, Why am I so timid.
