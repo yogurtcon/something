@@ -140,3 +140,7 @@ yesterday is 3/21, today is 3/24, it's correct, don't ask me why. Ok, next thing
 # 2020/3/25
 
 Yesterday, opened the box in Lor, I got two yellow cards, cool.At night, I had grilled fish and barbecue with my friends and played a game called turtle soup. I didn't feel anything in the process of playing, but when I got home, things just get worse, my parents were asleep, so the house was very quiet, when I took a bath alone, I would think nonsense, I would scare myself, Why am I so timid.
+
+# 2020/4/14
+
+Thousands of years later, I came back. You guys didn't expect it, right? I didn't expect it, too. I didn't expect that I would come back after such a long time. In this period of time, I am still playing and changing games. Today, I think of two labels for myself. Although they are not very accurate, one is called 'new-struck', because I like new things very much, and the other is called 'the party of loopholes', that sounds interesting. After playing the game, I finally changed my paper to a more satisfactory one, it's not easy, yes. Next, I have to do something, although I think I will continue to be a saltfish.
