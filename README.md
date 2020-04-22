@@ -148,3 +148,7 @@ Thousands of years later, I came back. You guys didn't expect it, right? I didn'
 # 2020/4/21
 
 U know what, I feel like I'm spending my summer vacation now. The weather is getting hotter. I still have nothing to do all day. I've been at home for several months. Have I made any progress in any aspect? No, I haven't learned at all. I haven't made any progress in English. I haven't learning programming at all. I play games and watch videos every day. I stay up late at night and watch mobile phones. It's really a terrible thing. Talk about the past few days, I've entered the talent pool of Netease game again. I didn't pass the interview about the programming teacher that Yi man asked me to go to, and then the rematch of The Voice of China will begin again, but I haven't sung a song since the last audition, that sounds fun.
+
+# 2020/4/22
+
+I went to bed a little earlier last night and got up a little earlier in the morning. In the morning, I only had powdered milk, but didn't eat steamed bread, then my stomach hurts, Alas. In the morning, Shi Ji said that he went back to work in the company, but I thought about it, didn't want to go back to that company. So I read the recruitment information all morning, searched the key words of the game and delivered several resumes.
